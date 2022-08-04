@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **abhijeetpdharme@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/folders/1z79l-17ULXcCoq5xUGhL6pXiINTQ_N1n](https://drive.google.com/drive/u/0/folders/1z79l-17ULXcCoq5xUGhL6pXiINTQ_N1n)
+- 📄 Know about my experiences [[https://drive.google.com/drive/u/0/folders/1z79l-17ULXcCoq5xUGhL6pXiINTQ_N1n](https://drive.google.com/file/d/1IShjflXFudbvvrQkiV8BJ36MDKzGFa0u/view?usp=sharing)]([https://drive.google.com/drive/u/0/folders/1z79l-17ULXcCoq5xUGhL6pXiINTQ_N1n](https://drive.google.com/file/d/1IShjflXFudbvvrQkiV8BJ36MDKzGFa0u/view?usp=sharing))
 
 - ⚡ Fun fact **Play Volleyball & Cricket**
 
