@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **MERN stack**
 
-- 💬 Ask me about **JavaScript, React , Node Js, Express Js**
+- 💬 Ask me about **JavaScript, React , React Native , Node Js, Express Js , mongoDB**
 
 - 📫 How to reach me **abhijeetpdharme@gmail.com**
 
